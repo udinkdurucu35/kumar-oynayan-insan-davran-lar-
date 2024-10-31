@@ -1,0 +1,1 @@
+# kumar-oynayan-insan-davran-lar-
